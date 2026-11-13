@@ -1,5 +1,5 @@
-[13/11 14.18] revanfadillah650: https://www.instagram.com/seven_70_of?obrf=am9yd3g4dndpa216
-[13/11 14.19] revanfadillah650: https://x.com/seven_tin70
+[13/11 14.18] https://www.instagram.com/seven_70_of?obrf=am9yd3g4dndpa216
+[13/11 14.19] https://x.com/seven_tin70
 # KRJ-Ghost-Protocol
 > **Decentralized Ghost Protocol & Manifesto Against Global Inflation**
 
